@@ -1,1 +1,1 @@
-# Bach-s-Trio-Sinata
+# Bach-s-Trio-Sonata
